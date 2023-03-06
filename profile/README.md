@@ -14,4 +14,4 @@ We provide your team with best in class cloud-native subject matter expertise th
 
 ### Contact Us
 
-https://www.cloudjester.co/form/
+[Reach out today](https://www.cloudjester.co/form/)
