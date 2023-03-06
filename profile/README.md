@@ -1,4 +1,4 @@
-## Welcome to the CloudJester Organization 👋
+## Welcome to CloudJester 👋
 
 ### Who are we?
 
